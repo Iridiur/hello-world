@@ -1,2 +1,3 @@
 # hello-world
-First repository
+
+holy shit mah nigga im just learning to do this shit xdddddddddd
